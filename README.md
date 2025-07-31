@@ -1,2 +1,0 @@
-# ZAINLITHA
-Game studio 
